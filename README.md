@@ -47,7 +47,7 @@
 
 Looking for a reliable **Virtual Assistant** or **Creative Freelancer** to help grow your brand and free up your time? I'm here to help!
 
-📧 Reach out to me via OnlineJobs.ph  
+📧 Reach out to me via UpWork https://www.upwork.com/freelancers/angelocastellvi?mp_source=share
 🌍 Available for part-time or full-time work  
 🕒 Open to working across time zones
 
